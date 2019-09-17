@@ -46,7 +46,7 @@ Hawai'i is two or three hours behind Pacific time since Hawai'i does not follow 
 
 My existing team is split between the west coast and the east coast, so we end up doing team meetings at 8 am my time so that everyone can attend. It works well enough, but it makes for a limited window to collaborate with those east coast colleagues before they finish their day. Interestingly, Hawai'i is also positioned to catch some overlap with east Asia and Australia. The main caveat is that afternoon in Hawai'i is morning on the **next day** in Asia, so their Monday and your Friday are lost for collaboration.
 
-## Others Perception
+## Others' Perception
 
 Hawai'i is mostly seen as a vacation destination, so the fact that you are working from there leads some people to believe that you're not really working very hard. This perception issue is present, but fairly easily resolved by simply getting shit done. It's hard to argue with results. Besides, you can have it both ways -- work hard when you need to AND enjoy the perks of living in a place most people only experience for a week or two at a time.
 
@@ -80,7 +80,7 @@ We've been here for a year now. Overall, we're super happy with the location we 
 - Pick a work schedule that fits your lifestyle. Do you like to get up early? If so, you can most likely get a full day in with lots of overlap with mainland colleagues AND still have time to go surfing in the afternoon.
 - Plan for higher prices (especially food) and adapt your lifestyle before coming. Do you like tropical fruit, grass-fed beef, and fresh veggies? You can have a reasonable food budget eating local fresh food.
 - Progress is slower here. People don't always show up to appointments or return calls. Don't get discouraged -- there are plenty of reliable tradespeople here, you just need to do some research.
-- Making friends is going to be harder. So many people move to Hawai'i and then leave after a year or two that it can be tiring for long-term residents to make connections that are likely to be unstable. You can make this better by diving into the local community. Volunteer, go to the market, and TALk to people.
+- Making friends is going to be harder. So many people move to Hawai'i and then leave after a year or two that it can be tiring for long-term residents to make connections that are likely to be unstable. You can make this better by diving into the local community. Volunteer, go to the market, and TALK to people.
 
 [1]: https://www.kiplinger.com/slideshow/real-estate/T006-S001-most-expensive-u-s-cities-to-live-in-2019/index.html
 [2]: https://www.gasbuddy.com/Station/39875 
